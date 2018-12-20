@@ -1,1 +1,1 @@
-# qusweeta.github.com
+# qusweeta.github.io
