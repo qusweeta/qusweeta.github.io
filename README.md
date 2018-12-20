@@ -1,2 +1,2 @@
-# Welcome to Qusweeta GitHub Pages
+# Welcome to qusweeta GitHub Pages
 hehe
